@@ -5,9 +5,10 @@ These organizations will make up the tier 1 teams in Valorant, consisting of the
 Teams will compete with each other over the course of the year, a competition to see who is the best team in the world. 
 <br>
 
-
-
+For those that are unfamiliar here are a couple of pictures that show off the game. 
 ![Image](https://cdn.discordapp.com/attachments/714884368048455782/1026676469658820618/IMG_1587.JPG)
+![Image](https://cdn.discordapp.com/attachments/714884368048455782/1026677600405438504/unknown.png)
+<br>
 
 
 ## Teams That Made It
