@@ -39,7 +39,7 @@ It turns out that Riot Games chose the teams based on their relationship with th
 Teams that people thought would make it, such as TSM, FaZe, and Optic did not get in due to their negative relationship and controversy from years prior with Riot Games.
 With XSet, their players were suppose to be bought out by G2, another organziation, but did not make it and was switched out with another team at the last second.
 The reason for this is that the owner of G2 was friends with Andrew Tate, or the "Top G" and Riot Games did not want to partner with them.
-Following the Andrew Tate conbtroversy, Riot Games did not want to partner with G2, with that set up mindset and bad influence that would be upon them. 
+Following the *Andrew Tate* controversy, Riot Games did not want to partner with G2, with that set up mindset and bad influence that would be upon them. 
 <br>
 
 
