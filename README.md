@@ -9,9 +9,7 @@ For those that are unfamiliar here are a couple of pictures that show off the ga
 <br>
 
 
-![Image](https://cdn.discordapp.com/attachments/714884368048455782/1026676469658820618/IMG_1587.JPG)
-<br>
-
+![Image](https://cdn.discordapp.com/attachments/714884368048455782/1026680479971295312/unknown.PNG)
 ![Image](https://cdn.discordapp.com/attachments/714884368048455782/1026677600405438504/unknown.png)
 <br>
 
