@@ -56,4 +56,4 @@ Nobody is safe on every team, making the future of Valorant unpredictable with a
 <br>
 
 If you want to learn about Valorant Franchising click the link down below. 
-https://realsport101.com/valorant/valorant-franchising-system-2023-who-will-take-part-how-it-works-and-more/
+[Valorant](https://realsport101.com/valorant/valorant-franchising-system-2023-who-will-take-part-how-it-works-and-more/)
