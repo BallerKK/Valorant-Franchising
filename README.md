@@ -9,13 +9,14 @@ Teams will compete with each other over the course of the year, a competition to
 
 ![Image](https://www.google.com/imgres?imgurl=https%3A%2F%2Fstaticg.sportskeeda.com%2Feditor%2F2021%2F11%2F1e2dc-16365302333096-1920.jpg&imgrefurl=https%3A%2F%2Fwww.sportskeeda.com%2Fvalorant%2Ffuture-valorant-constant-meta-shifts-making-riot-s-shooter-one-successful-esports-titles&tbnid=TueitWcmCG2CGM&vet=12ahUKEwjP1f2QuMX6AhXOgokEHQwLC0sQMygAegQIARBJ..i&docid=tImHXpIEqQkJ2M&w=1900&h=1280&q=valorant&hl=en&ved=2ahUKEwjP1f2QuMX6AhXOgokEHQwLC0sQMygAegQIARBJ)
 
+
 ## Teams That Made It
 In Valorant Franchising for North America, there were only 5 teams that made it into the tier 1 scene.
-These teams consist of 100 Thieves, Sentinels, Evil Geniuses, Cloud 9, and NRG.  
+These teams consist of **100 Thieves, Sentinels, Evil Geniuses, Cloud 9, and NRG.**  
 <br> 
 
 ## Teams That were Left Out
-Some of the notable teams that did not make it are OPTIC, and XSET, 2 notable teams that both finished within the top 4 in Valorant Champions 2022. 
+Some of the notable teams that did not make it are **OPTIC, and XSET**, 2 notable teams that both finished within the top 4 in Valorant Champions 2022. 
 Valorant Champions consisted of the best teams from all around the world that competed against each other on an international stage. 
 This left many people in shock to see that the best 2 teams currently in NA did not make it into franchising. 
 <br>
@@ -39,11 +40,11 @@ Following the Andrew Tate conbtroversy, Riot Games did not want to partner with 
 
 
 #### Notable Free Agents
-One of the names that has every organization's attention is Optic Yay, who is one of the best players in the world. 
+One of the names that has every organization's attention is **Optic Yay**, who is one of the best players in the world. 
 He was being offered $1 million contracts from teams from the EMEA region, but even turned this offer down, probably wanting to stay in the NA region. 
 Currently, he is being rumored to join Cloud 9 that would ultimately make C9 instantly one of the favorites. 
-For XSET Cryo, another player who is one of the best in the NA region, joined 100 Thieves, meaning 100T Will is either going to be released or moved to the bench.
-NRG is also rumored to be getting 3 of the former optic players, consisting of Crashies, FNS, and Victor, as well as their coach. 
+For **XSET Cryo**, another player who is one of the best in the NA region, joined 100 Thieves, meaning 100T Will is either going to be released or moved to the bench.
+NRG is also rumored to be getting 3 of the former optic players, consisting of **Crashies, FNS, and Victor**, as well as their coach. 
 There are many players in the future that will be joining teams, along with organizations dropping the current players with their team. 
 Nobody is safe on every team, making the future of Valorant unpredictable with all the new roster changes. 
 <br>
